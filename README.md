@@ -1,2 +1,2 @@
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Leckerli+One&size=40&duration=1500&pause=7500&color=82F8EF&center=true&vCenter=true&repeat=true&width=1000&lines=Hi%2C+I'm+Mads)
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Leckerli+One&size=40&duration=1500&pause=1500&color=DA4FEE&center=true&vCenter=true&repeat=true&width=1000&lines=xoxoxoxoxoxox;I'm+a+EE+major+%40+GT;Check+out+my+work+below!)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Leckerli+One&size=40&duration=1500&pause=1500&color=DA4FEE&center=true&vCenter=true&repeat=true&width=1000&lines=.・。.・゜✭・.・✫・゜・。.;I'm+a+EE+major+%40+GT;Check+out+my+work+below!)
